@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @sebastianvr
-- Just learning and learning
+- 👋 ___Hi, I’m @sebastianvr___
 - 👀 
 
 <!---
