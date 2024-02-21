@@ -1,5 +1,8 @@
 - 👋 [___Hi, I’m @sebastianvr___](https://github.com/sebastianvr)
-- [___My Linkedin___](https://www.linkedin.com/in/sebastian-vidal-ramirez/)
+
+**Contact**
+- [___Linkedin___](https://www.linkedin.com/in/sebastian-vidal-ramirez/)
+- [___Discord___](https://www.linkedin.com/in/sebastian-vidal-ramirez/)
 - 👀 
 
 <!---
